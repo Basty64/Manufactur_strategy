@@ -1,0 +1,1 @@
+# Manufactur_strategy
